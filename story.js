@@ -1,0 +1,1 @@
+One morning a young boy named Mathew was eating his favorite cereal before school. The entire time he was daydreaming of how to get into his dream job of being a microsoft employee. Little did he know that there was already a path set for him.
